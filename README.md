@@ -1,2 +1,2 @@
 # Famous-Astrologer-in-Canada---Pandit-Om-Shastri-Ji
-More people are now discovering consultation and spiritual guidance services online instead of relying on offline referral. Platform like &lt;a href ="https://astrologercanada.com/"> Astrologer in Famous Canada &lt;/a> highlight how trust, content, and digital communities are shaping modern niche businesses. Curious how others see this trend evolving.
+More people are now discovering consultation and spiritual guidance services online instead of relying on offline referral. Platform like &lt; <a href ="https://astrologercanada.com/"> Astrologer in Famous Canada </a> highlight how trust, content, and digital communities are shaping modern niche businesses. Curious how others see this trend evolving.
